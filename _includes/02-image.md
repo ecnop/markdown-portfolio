@@ -1,0 +1,1 @@
+![Stock image of a flame](https://www.istockphoto.com/photo/fire-isolated-over-black-background-gm113494458-13617962?utm_source=unsplash&utm_medium=affiliate&utm_campaign=srp_photos_top&utm_content=https%3A%2F%2Funsplash.com%2Fs%2Fphotos%2Ffire&utm_term=fire%3A%3A%3A)
